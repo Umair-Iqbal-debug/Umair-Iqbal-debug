@@ -5,4 +5,5 @@
 - 🤔 I’m looking for help with landing an internship
 - 📫 How to reach me: iqbalumairi@gmail.com
 - 🏀 Fun fact: ballislife
+- 👨🏽‍💻 Portfolio: umairhoda.com
 
